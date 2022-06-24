@@ -1,6 +1,4 @@
-![avataaars](https://user-images.githubusercontent.com/69409023/175741827-50178ee4-868b-446a-ba23-d048b4c6d3ad.png)
-![image](http://url.to/image.png](https://user-images.githubusercontent.com/69409023/175741827-50178ee4-868b-446a-ba23-d048b4c6d3ad.png) = 25x25)
-![image](http://url.to/image.png](https://user-images.githubusercontent.com/69409023/175741827-50178ee4-868b-446a-ba23-d048b4c6d3ad.png) = 25)
+![Senza nome(1)](https://user-images.githubusercontent.com/69409023/175744994-02f19eac-b885-4b3b-a163-81bfbf1d6107.png)
 👋 Hi, I’m @AntoXYT. 16 years old
 📫 How to reach me : Discord  AntoX#0859
 
