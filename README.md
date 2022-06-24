@@ -3,4 +3,4 @@
 
 🎙️ Discord:AntoX#0859.
 
-
+👷‍♂️ Old experiences **Italian Freeroam and Italian Academy Developer**, other secondary projects.
